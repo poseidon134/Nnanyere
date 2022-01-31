@@ -1,2 +1,2 @@
-# Nnanyere-s-CV
+# Nnanyere's CV
 My CV
